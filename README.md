@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Isaac05158
+- 👀 I’m interested in video game coding
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on video game coding
+- 📫 How to reach me isaac.scholten2012@outlook.com
